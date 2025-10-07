@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, my name is Rebecca 👋
 
 - 🔭 I’m currently working at Drexel Central and working on my LIS Capstone project with the Library of Congress. 
 - 🌱 I’m currently learning library science at Drexel university
